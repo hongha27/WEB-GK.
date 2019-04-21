@@ -1,0 +1,2 @@
+# WEB-GK.
+web tĩnh
